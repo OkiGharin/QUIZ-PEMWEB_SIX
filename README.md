@@ -8,3 +8,4 @@
 4. <img width="1463" height="926" alt="Screenshot 2026-11-25 010720" src="https://github.com/user-attachments/assets/c7a5a000-dd31-4d91-b460-7eb2557d3d32" />
 
 
+disclaimer : tidak sepenuhnya saya yang membuatnya, sorry kak :)
